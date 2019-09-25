@@ -1,5 +1,0 @@
-111111
-kkkkkkkkkkkkkkk
-aaaaaaaaaaaaa
-ttttttttttt
-66666666666666
